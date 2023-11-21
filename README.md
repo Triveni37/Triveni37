@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Triveni37
 - 🌱 I’m currently Pursuing Btech
-- 💞️ MALLAREDDY COLLEGE OF ENGINEERING FOR WOMEN 
+- 💞️ MALLAREDDY COLLEGE OF ENGINEERING FOR WOMEN, Hyderabad 
 - 📫 trivimani3377@gmail.com
 
 <!---
